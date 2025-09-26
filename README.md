@@ -1,1 +1,0 @@
-# Ponderada-Crishna-S8
